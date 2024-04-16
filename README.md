@@ -1,4 +1,4 @@
-### 👋 If you have any questions, please write me.
+### 👋 If you have any questions, please write me. [CV](https://drive.google.com/file/d/1nP9CZhtkduEJYo05MCdR5Nwoysm576qO/view?usp=sharing)
 
 ### 💻 Stack:
 <div>
